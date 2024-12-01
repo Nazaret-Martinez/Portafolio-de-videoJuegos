@@ -64,8 +64,6 @@
 
 ![image](https://github.com/user-attachments/assets/2f88312c-bbb7-41d2-a397-095f660272a6)
 
-![image](https://github.com/user-attachments/assets/c1381899-238c-4f47-9494-3d27c27d364e)
-
 ![image](https://github.com/user-attachments/assets/e7de335c-595c-41d4-9666-45fa17abfe79)
 
 ![image](https://github.com/user-attachments/assets/f62c2197-7f7d-4295-9914-429ec0686474)
@@ -79,7 +77,22 @@
 
 # Challenge Perrito con pelotas
 ![image](https://github.com/user-attachments/assets/57038105-5e20-47c1-b4b0-a4658fed135a)
+
 ![image](https://github.com/user-attachments/assets/69a63cf7-204e-4584-8d7d-e9b92ac7f640)
+
+![image](https://github.com/user-attachments/assets/19a46d28-9617-4c26-8a33-e4f1fdf09b0d)
+
+![image](https://github.com/user-attachments/assets/a8f9fad7-cca3-404d-b1ba-64b26d322bb4)
+
+![image](https://github.com/user-attachments/assets/a102390f-abdd-46de-ba6b-2a76b142233b)
+
+![image](https://github.com/user-attachments/assets/529ea8d2-c0c4-4e9c-85c9-505259f5bffd)
+
+![image](https://github.com/user-attachments/assets/ab2408d7-835c-40fa-b977-7330ad709083)
+
+![image](https://github.com/user-attachments/assets/b8041030-5628-471d-a4ec-556f49b456e9)
+
+
 
 
 
