@@ -77,6 +77,11 @@
 
 
 
+# Challenge Perrito con pelotas
+![image](https://github.com/user-attachments/assets/57038105-5e20-47c1-b4b0-a4658fed135a)
+![image](https://github.com/user-attachments/assets/69a63cf7-204e-4584-8d7d-e9b92ac7f640)
+
+
 
 
 
