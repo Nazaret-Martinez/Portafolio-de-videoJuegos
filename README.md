@@ -120,9 +120,48 @@ Prototipo 3 Parte 2
 
 ![image](https://github.com/user-attachments/assets/0e0a0b30-2c31-4447-9523-cdaba21c4810)
 
-#
+# Parte 3 
+![image](https://github.com/user-attachments/assets/ad9a25bd-b7b2-4bf8-b456-d0fa2db91231)
 
+![image](https://github.com/user-attachments/assets/fbfbef3c-d1d5-4838-b77b-711fe6778121)
 
+![image](https://github.com/user-attachments/assets/3dea3b4d-c031-4f98-8980-cdda9483c470)
+
+![image](https://github.com/user-attachments/assets/77660c43-ef02-49c5-81e5-491d4ad11757)
+
+![image](https://github.com/user-attachments/assets/058ea1fb-c2c0-4f52-8f91-e5bbf6a4204c)
+
+![image](https://github.com/user-attachments/assets/6d8a1e9c-cd3b-4489-a13b-a384ae0b15e1)
+
+![image](https://github.com/user-attachments/assets/35a24250-0a45-4747-8531-671584331b66)
+
+![image](https://github.com/user-attachments/assets/fae4f0d4-df45-47e4-a306-43d6fc7d9619)
+
+![image](https://github.com/user-attachments/assets/73981cd8-1983-4540-9055-a2df9a92d012)
+
+![image](https://github.com/user-attachments/assets/401eb731-fbba-4c21-8c61-e1f77d37725f)
+
+![image](https://github.com/user-attachments/assets/851d7017-bc03-4d6a-848d-800a1dce0225)
+
+![image](https://github.com/user-attachments/assets/c909d033-bae7-4d89-b62e-008a1a8cec60)
+
+![image](https://github.com/user-attachments/assets/fb4308f0-ff86-433b-9fe1-7c16af401b4c)
+
+![image](https://github.com/user-attachments/assets/e4c50a3f-6063-4406-b7c3-62c7271e6dfe)
+
+![image](https://github.com/user-attachments/assets/53467262-4c60-4828-b8a8-e4f9bc202b82)
+
+![image](https://github.com/user-attachments/assets/bab77610-1d8e-43c6-af71-e28042d4059b)
+
+![image](https://github.com/user-attachments/assets/4d7a3fb9-f3e5-47ff-8504-6b29c0218ca4)
+
+![image](https://github.com/user-attachments/assets/5b14c400-d84a-4cfd-b8fc-29a4d2ecd2bd)
+
+![image](https://github.com/user-attachments/assets/7627d68f-6dee-4842-bfe0-dd82a16c8237)
+
+![image](https://github.com/user-attachments/assets/101a6cf7-8769-482a-ba86-0e080888fb34)
+
+![image](https://github.com/user-attachments/assets/30d8792b-a654-4ad3-af13-5f473ad67fb3)
 
 
 
