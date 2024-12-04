@@ -164,6 +164,8 @@ Prototipo 3 Parte 2
 ![image](https://github.com/user-attachments/assets/30d8792b-a654-4ad3-af13-5f473ad67fb3)
 
 
+# Parte 4
+![image](https://github.com/user-attachments/assets/0211cf73-79df-407f-b4cf-d929bd8009a8)
 
 
 
