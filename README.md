@@ -94,6 +94,22 @@
 ![image](https://github.com/user-attachments/assets/b8041030-5628-471d-a4ec-556f49b456e9)
 
 
+#challenge avioncito
+![image](https://github.com/user-attachments/assets/128fc486-3648-468b-98e7-cc282bb2ce6b)
+
+![image](https://github.com/user-attachments/assets/0968067e-b32b-4a08-950d-d719e8522ba6)
+
+
+![image](https://github.com/user-attachments/assets/629d218c-3bb3-48e3-8ee1-85de76279a0a)
+
+
+![image](https://github.com/user-attachments/assets/d8e81926-8add-45a9-85f9-7ce891c7fe1d)
+
+
+![image](https://github.com/user-attachments/assets/2a0420c1-6b8e-4ec6-a2a4-7c98333571d2)
+
+
+
 
 
 
